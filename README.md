@@ -7,6 +7,5 @@
 - 💬 Ask me about Nest.js and simple math
 - 📫 How to reach me: send me messages here or frankli8488xy@gmail.com
 - 😄 Pronouns: ... He/Him/Man
-- ⚡ Fun fact: ... I'm a part time strength coach on powerlifting, my PRS: bentch 135kg, deadlift: 220kg, squat 215kg Not big numbers as I'm starting late
- and growing up without decent protiein food.
+- ⚡ Fun fact: ... I'm a part time strength coach on powerlifting, my PRS: bentch 135kg, deadlift: 220kg, squat 215kg Not big numbers but I do have some backgroud in medical and rehabilitation.
 
